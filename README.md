@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Perner61
 - 👀 I’m interested in art
-- 🌱 I’m currently learning pencil
- dra techic
+- 🌱 I’m currently working on pencil
+ drawing 
 - 💞️ I’m looking to collaborate with new models
 - 📫 How to reach me, just ask me on facebook.
 
